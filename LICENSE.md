@@ -1,4 +1,4 @@
-# 
+# updated Shotcut for PC | Shotcut for Windows Extension | audio-sync + title-animation offers the most advanced Shotcut for PC | Shotcut for Windows extension, with audio-sync and
 
 
 
